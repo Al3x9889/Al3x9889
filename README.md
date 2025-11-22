@@ -73,7 +73,7 @@ I'm a passionate DevOps Engineer focused on automation, continuous integration, 
 Feel free to connect with me!
 
 - **Email:** alex08998@gmail.com
-- **LinkedIn:** www.linkedin.com/in/alex-malichenko-9103b3241
+- **LinkedIn:** 💼 Alex Malichenko – LinkedIn
 
 ---
 
